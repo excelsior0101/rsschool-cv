@@ -1,1 +1,1 @@
-https://excelsior0101.github.io/rsschool-cv/
+https://excelsior0101.github.io/rsschool-cv/cv
