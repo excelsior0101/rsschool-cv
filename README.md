@@ -1,1 +1,1 @@
-https://excelsior0101.github.io/rsschool-cv/
+[RSSCHOOL-CV](https://excelsior0101.github.io/rsschool-cv/)
